@@ -51,15 +51,15 @@ Here you’ll find:
 If you need a design, branding help, or want to collaborate:
 
 📩 Contact: **info@pixelproud.lk** *(add after your email is ready)*  
-💬 WhatsApp: *(add your number here)*
+💬 WhatsApp: *+94 70 303 8613*
 
 ---
 
 ## 🔗 Social Links
 
-- Facebook: *(add link)*  
-- Instagram: *(add link)*  
-- LinkedIn: *(add link)*
+- Facebook: https://www.facebook.com/PixelProud.lk
+- Instagram: https://www.instagram.com/pixelproud.lk
+- LinkedIn: https://www.linkedin.com/company/pixelproud-lk
 
 ---
 
