@@ -50,7 +50,7 @@ Here you’ll find:
 
 If you need a design, branding help, or want to collaborate:
 
-📩 Contact: **info@pixelproud.lk** *(add after your email is ready)*  
+📩 Contact: **info@pixelproud.lk** 
 💬 WhatsApp: *+94 70 303 8613*
 
 ---
