@@ -30,7 +30,6 @@ We create visuals that help students, small businesses, and events look professi
 
 ## 🌐 Official Website
 
-- https://pixelproud.lk  
 - https://www.pixelproud.lk
 
 ---
